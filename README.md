@@ -1,0 +1,1 @@
+# napewnozaliczenie_witryny
